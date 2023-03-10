@@ -1,5 +1,4 @@
-### Hi there 👋, I'm Matt
-
+# Hi, I'm Matt! 👋 
 
 ## 🚀 About Me
 
